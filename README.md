@@ -1,1 +1,4 @@
 # informatyka
+ctggftyfvy\
+]
+jmhiopok
